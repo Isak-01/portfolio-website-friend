@@ -1,1 +1,0 @@
-Ruben har gigantiska biceps
